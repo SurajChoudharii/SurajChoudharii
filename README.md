@@ -40,7 +40,7 @@ Here are a few highlights from my project portfolio:
 
 ## 📫 Let's Connect!
 
-- 📧 Email: suraj.choudhari@example.com  
+- 📧 Email: choudharisuraj157@gmail.com
 - 🔗 LinkedIn: 
 - 💼 Resume: Available on request
 
